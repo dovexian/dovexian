@@ -6,9 +6,7 @@
 
 <p align="center">
 
-<p align="center">
-
-[ata](https://dovexian.atabook.org/)
+　　　　　　　　　　　　　 ˖Ი𐑼ּ ֶָ֢.　　　.　　　sign　　my　　[ata](https://dovexian.atabook.org/)
 
 <p align="center">
 
